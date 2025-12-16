@@ -6,5 +6,5 @@
 - ⚡ Fun fact:
   * I don't like Windows but still have to use it daily
   * I don't go to collage yet ( Just passed High School )
-  * My another Github account for fun stuff ( https://github.com/cloudysio )
+  * My another Github account for fun stuff ( https://github.com/cloudysio1 )
 
